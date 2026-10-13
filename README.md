@@ -18,5 +18,3 @@ I'm a Mathematics graduate passionate about using data to solve problems and dis
 - Data Analysis
 - Mathematics & Statistics
 
-### 📫 Connect with me
-- LinkedIn: Add your LinkedIn profile link here# Amna-Ashraf-KK
